@@ -3,6 +3,7 @@ If you’re trying to reach Truist Bank customer service and feeling frustrated,
 
  
 1. Truist Bank Customer Service Phone Numbers
+
 The fastest way to get help is by calling their customer support directly.
 General Customer Support: 844-487-8478
 
